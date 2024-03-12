@@ -1,0 +1,4 @@
+- 我是Locked~
+- 这里可以看到我自学过程建的仓库
+- 感觉这样好有成就感哈哈哈
+- btw我的主页是Lockeded.github.io
